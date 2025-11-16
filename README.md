@@ -65,7 +65,7 @@ Team Management • Event Execution • Stakeholder Communication • Strategy &
 
 ## 🖇 Connect With Me
 **Email:** dhanush1105vtht@gmail.com  
-**LinkedIn:**(https://www.linkedin.com/in/dhanush-m-6ab408296/overlay/about-this-profile/?trk=opento_sprofile_details&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BTbR%2BnaGOQL6AupRWFbOYdA%3D%3D)  
+**LinkedIn:**www.linkedin.com/in/dhanush-m-6ab408296  
 **GitHub:** https://github.com/yourusername  
 
 ---
